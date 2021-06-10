@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HexteriaEnrage
+- 👀 I’m interested in lots and lots of things.
+- 🌱 I’m currently learning MORE HTML
+- 💞️ I’m looking to collaborate on nothing for now/
+- 📫 How to reach me: DM me on discord; Hex#883
